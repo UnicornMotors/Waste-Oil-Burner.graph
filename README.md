@@ -4,3 +4,4 @@
 - [Easy Homemade Waste Oil Burner Made From Scrap Heating 40x80 Shop With NO FORCED AIR!! DIY FREE HEAT](https://youtu.be/6Ca4ASECIqI)
 - [My version of a waste oil heater](https://youtu.be/T_4OlmMBB9A)
 - [Parts of waste oil burner](https://youtu.be/0I6LBVisrSQ)
+- [DIY waste oil fireplace insert! Replacing the propane burner.](https://youtu.be/hwcNrDWOE4Y)
